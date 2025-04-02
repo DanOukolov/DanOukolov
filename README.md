@@ -1,5 +1,5 @@
 # Daniel Oukolov
-### Technology in the Southeast of the US, Data Infrastructure, Venture Capital, Private Equity, Real Estate
+### Technology in the Southeast of the US
 
 ⤷ Oakwin is my main focus.
 
