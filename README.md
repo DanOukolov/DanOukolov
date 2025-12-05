@@ -5,7 +5,6 @@
 
 ⚐ Based in The United States of America
 
-ϟ Currently Building in Real Estate, Healthcare, and M&A Technologies
 
 
  ## Skills
